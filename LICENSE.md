@@ -1,4 +1,4 @@
-
+Enhance your Betternet experience with rare Betternet Client | P2P-support + server-switching, the #1 client. Includes P2P-support and server-switching for a safer and more
 
 
 
